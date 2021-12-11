@@ -18,7 +18,7 @@ __This text is strong__
 ~~This text is strikethrough~~
 
 <!-- Horizontal rule -->
----"C:\Users\lucas\OneDrive\Pictures\rohangoat.jpg"
+---
 ___
 
 <!-- Escape characters -->
