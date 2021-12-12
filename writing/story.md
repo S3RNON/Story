@@ -18,11 +18,11 @@ Not yet. I wasn't done.
 "So what brought you guys in this business?"  
 "Money. What do you *think* smartass?"  
 I was feeling their doubts towards me. This had to be the riskiest thing I had ever done.  
-"You then? Have you got some special reason?" one of them asked.  
+"You, then? Have you got some special reason?" one of them asked.  
 Silence.  
 "I uh..."  
 I mustn't lose my confidence. They'll find me out.  
-"I just am.. *Alive*."  
+"I just am... *Alive*."  
 "What does that mean?"  
 I didn't really know. It just felt the right thing to say.  
 "Have any of you fellas seen my mask? I must have lost mine..."  
