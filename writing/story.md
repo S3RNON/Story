@@ -2,7 +2,7 @@
 
 Standing on top of a million burnt corpses, ready to burn more.  
 The echoes of a thousand footsteps thunder around the world.  
-One finger pointed at his head the devil proclaims  
+One finger pointed at his head, the devil of all Earth proclaims  
 "*I feel awful*".  
 
 
