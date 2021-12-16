@@ -7,7 +7,7 @@
 ###### Heading 6
 
 <!-- Emphasis -->
-*This text is Italic.*
+*This text is Italic.* arjen mag wel dood.
 
 _This text is Italic._
 
